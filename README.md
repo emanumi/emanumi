@@ -1,0 +1,3 @@
+- 👋 Oi eu sou a @emanumi
+- 🌱 Estou apredendo programação básica
+- 📫 Email para contato emanuelle.santos.oliveira@gmail.com
